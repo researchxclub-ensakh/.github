@@ -1,1 +1,0 @@
-# ResearchX Club
